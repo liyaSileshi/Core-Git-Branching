@@ -23,6 +23,8 @@ The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
 George met the Unicorn King who granted him magic powers.
+
+George met the Zookeeper and the Friendly Koala.
 Then George lived happily ever after.
 The end.
 
